@@ -5,45 +5,63 @@
 
  
 <p align="center">
-┊ ꣑୧  FRANCIS/MAX/DEIMOS/STARSCREAM ꣑୧ ┊
+┊ ꣑୧  Francis/Max , Deimos ꣑୧ ┊
 
- -
 
 
 <p align="center">
-┊ ꣑୧  PRNS: ANY , PREF: HE/HIM ꣑୧ ┊
+┊ ꣑୧  PRNS ꣑୧ ┊
 
- -
+꣑୧ He / They / She ꣑୧
+
+  <p align="center">
+꣑୧ C + H is Allowed always !! ꣑୧
 
 <p align="center">
 ┊ ꣑୧ INTERESTS ! ꣑୧ ┊
-<p align="center">
-- TRANSFORMERS , MADCOM , PHIGHTING! , MOUTHWASHING , TEAM FORTRESS 2 , POKEPASTAS , POKEMON , REGRETEVATOR , SUPERNATURAL , MORTAL KOMBAT , UNTIL DAWN , THE OUTSIDERS , INTERSTELLAR , WHIPLASH , ARCANE , TOPGUN , COOKIE RUN KINGDOM , 3FS , FORESAKEN , 9-1-1 , BROKEBACK MOUNTAIN -
-
--
 
 <p align="center">
-┊ ꣑୧ INT ! ꣑୧ ┊
-<p align="center">
-- IF YOURE FANS OF ANYTHING STATED ABOVE , IDM IF YOU INT JUST DONT IF YOURE APART OF MY DNI! -
+ ꣑୧ Movies / Shows / Series / Stories ꣑୧
 
--
+꣑୧ Brokeback mountain , Interstellar , Whiplash , Top gun , The Outsiders , Supernatural , Arcane , 9-1-1 , StormChasers , Madness Combat , Transformers , Pokepasta  ꣑୧
+
+<p align="center">
+ ꣑୧ Games ꣑୧
+
+ ꣑୧  Phighting! , Foresaken , Regretevator , Mouthwashing , Team Fortress 2 , Mortal Kombat , Until Dawn, Cookie Run Kingdom , Pokemon  ꣑୧
+
+ <p align="center">
+ ꣑୧ Youtubers ꣑୧
+ 
+ ꣑୧ 3FS , Markiplier , Jacksepticeye , Kubz Scouts , Coryxkenshin  ꣑୧
+
+  <p align="center">
+ ꣑୧ Bands / Music Artists ꣑୧
+
+  ꣑୧ Radiohead , Mitski , Big Theif , Imogen Heap , Adrianne Lenker ꣑୧
+
+
+<p align="center">
+┊ ꣑୧ BYI ! ꣑୧ ┊
+
+ ꣑୧ Dyslexic , OSDD ( Main fronters ; Francis/Max (Host) , Deimos (Co-host) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes   ꣑୧
+
+ <p align="center">
+┊ ꣑୧  INT ! ꣑୧ ┊
+
+ ꣑୧ Anything stated in our interests , or not in my dni , Boundary Respecter  ꣑୧
 
 <p align="center">
 ┊ ꣑୧ ! DNI ! ꣑୧ ┊  
-<p align="center">
- - BASIC DNI , JIMMYS (MW) , IF YOU DONT RESPECT BOUNDARIES , JOKES ABOUT SA , PENIS SKINS , WINCEST (SAM.WINCHESTERxDEAN.WINCHESTER) , SAMXLUCIFER , SILCOXJINX , EXTREMELY SEXUAL TOWARDS US (IDM ALOT, BUT IT CAN GET TO MUCH) , JIMMYXCURLY , MHA (UNLESSFRIEND) , SINFULSPIRE(SYSTEMFAKER ALONG W/ OTHER DISORDERS/SYMPTOMS - EX; NPD , TICS , ETC (ASK FOR MORE INFO)  ,  MORE COMING SOON! -
 
--
 
- <p align="center">
- .; C + H IS ALLOWED!! ;. 
+ ꣑୧ Basic DNI , Proshippers , Jimmys (MW) , Jimmy x Curly , SA Jokes , Male genitalia skins , Wincest (Dean x Sam Winchester) , Sam x Lucifer , Extremely Sexual , MHA (Unless Friend) , Sinfulspire ( Systemfaker , Along with other disorders/symptoms - Ex : NPD , TICS , Etc... (Ask for more Info) , More coming soon . ꣑୧ 
 
--
 
  <p align="center">
- .; P.S -- WE ARE A OSDD SYSTEM , NOT MANY OF US FRONT. THE MAIN FRONTERS IS DEIMOS & FRANCIS, YOURE USUALLY TALKING TO ONE OF US. IF YOURE CURIOUS PLS ASK! I SUCK AT KEEPING CONVOS GOING , SO I APOLOGIZE IN ADVANCE , MY MOODS SWING VERY FREQUENTLY SO PLS BE AWARE ! , I CAN BE ANNOYING IF I AM JUST LMK !! FEEL FREE TO INT IF YOURE NOT IN MY DNI , PLS DONT IF MY NAME SAYS OTHERWISE EX:DNIU__ , DNI !
+ ꣑୧ Please Int unless (Dniu_) , we are desperatly wanting friends ! ꣑୧
 
+ 
  <p align="center">
  <img width="1000" src= ![Image](https://github.com/user-attachments/assets/4f6f32f2-2675-40ba-aa23-5378f05225f5)
 
