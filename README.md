@@ -7,7 +7,7 @@
 <p align="center">
 ┊ ꣑୧  Francis/Max , Deimos ꣑୧ ┊
 
-
+┊ ꣑୧ MINOR ꣑୧ ┊
 
 <p align="center">
 ┊ ꣑୧  PRNS ꣑୧ ┊
