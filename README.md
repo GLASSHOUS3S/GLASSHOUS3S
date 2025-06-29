@@ -28,7 +28,7 @@
 <p align="center">
  ꣑୧ Games ꣑୧
 
- ꣑୧  Phighting! , Foresaken , Regretevator , Mouthwashing , Team Fortress 2 , Mortal Kombat , Until Dawn, Cookie Run Kingdom , Pokemon  ꣑୧
+ ꣑୧  Phighting! , Forsaken , Regretevator , Mouthwashing , Team Fortress 2 , Mortal Kombat , Until Dawn, Cookie Run Kingdom , Pokemon  ꣑୧
 
  <p align="center">
  ꣑୧ Youtubers ꣑୧
