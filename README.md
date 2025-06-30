@@ -49,7 +49,7 @@
  <p align="center">
 ┊ ꣑୧  INT ! ꣑୧ ┊
 
- ꣑୧ Anything stated in our interests , or not in my dni , Boundary Respecter  ꣑୧
+ ꣑୧ Anything stated in our interests , or not in my dni , Boundary Respecter , Yappers!!  ꣑୧
 
 <p align="center">
 ┊ ꣑୧ ! DNI ! ꣑୧ ┊  
