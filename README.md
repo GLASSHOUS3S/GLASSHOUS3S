@@ -12,7 +12,7 @@
 <p align="center">
 ┊ ꣑୧  PRNS ꣑୧ ┊
 
-꣑୧ He / They / She ꣑୧
+꣑୧ He / They / She (Pref; He/they) ꣑୧
 
   <p align="center">
 ꣑୧ C + H is Allowed always !! ꣑୧
@@ -44,7 +44,7 @@
 <p align="center">
 ┊ ꣑୧ BYI ! ꣑୧ ┊
 
- ꣑୧ Dyslexic , OSDD ( Main fronters ; Francis/Max (Host) , Deimos (Co-host) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes   ꣑୧
+ ꣑୧ Dyslexic , OSDD ( Main fronters ; Francis/Max (Host, He/They) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes   ꣑୧
 
  <p align="center">
 ┊ ꣑୧  INT ! ꣑୧ ┊
