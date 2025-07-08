@@ -44,7 +44,7 @@
 <p align="center">
 ┊ ꣑୧ BYI ! ꣑୧ ┊
 
- ꣑୧ Dyslexic , OSDD ( Main fronters ; Francis/Max (Host, He/They) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes   ꣑୧
+ ꣑୧ Dyslexic , OSDD ( Freq fronters ; Francis/Max (Host, He/They) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes , Some of us are yappers, and the two main just so happen to be!   ꣑୧
 
  <p align="center">
 ┊ ꣑୧  INT ! ꣑୧ ┊
