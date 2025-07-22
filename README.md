@@ -33,7 +33,7 @@
  <p align="center">
  ꣑୧ Youtubers ꣑୧
  
- ꣑୧ 3FS , Markiplier , Jacksepticeye , Kubz Scouts , Coryxkenshin  ꣑୧
+ ꣑୧ 3FS , Markiplier , Jacksepticeye , Kubz Scouts , Coryxkenshin , JuicyFruitSnacks ꣑୧
 
   <p align="center">
  ꣑୧ Bands / Music Artists ꣑୧
