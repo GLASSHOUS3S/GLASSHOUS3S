@@ -61,16 +61,12 @@
 
  
  <p align="center">
- <img width="1000" src= ![Image](https://github.com/user-attachments/assets/4f6f32f2-2675-40ba-aa23-5378f05225f5)
 
- 
-  ![Image](https://github.com/user-attachments/assets/4f6f32f2-2675-40ba-aa23-5378f05225f5) 
+
+ <img width="1552" height="298" alt="Image" src="https://github.com/user-attachments/assets/338ced52-14c6-4bb3-8b44-b502e685d50a" />  
   
   <p align="center">
- <img width="10000" src= ![image](https://github.com/user-attachments/assets/2e0dd739-4550-4851-a39e-7785968eb194)
-
- ![image](https://github.com/user-attachments/assets/2e0dd739-4550-4851-a39e-7785968eb194)
-
+ 
 
 <!--
 **GLASSHOUS3S/GLASSHOUS3S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
