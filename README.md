@@ -12,7 +12,7 @@
 <p align="center">
 ┊ ꣑୧  PRNS ꣑୧ ┊
 
-꣑୧ He / They / She (Pref; He/they) ꣑୧
+꣑୧ He / They / She (Pref; they/them) ꣑୧
 
   <p align="center">
 ꣑୧ C + H is Allowed always !! ꣑୧
@@ -44,7 +44,7 @@
 <p align="center">
 ┊ ꣑୧ BYI ! ꣑୧ ┊
 
- ꣑୧ I use bro and dude alot on everyone... lmk if that bothers you!! Dyslexic , OSDD ( Freq fronters ; Francis/Max (Host, He/They) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes , Some of us are yappers, and the two main just so happen to be!   ꣑୧
+ ꣑୧ I use bro and dude alot on everyone... lmk if that bothers you!! Dyslexic , OSDD ( Freq fronters ; Francis/Max (Host, They/Them) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes , Some of us are yappers, and the two main just so happen to be!   ꣑୧
 
  <p align="center">
 ┊ ꣑୧  INT ! ꣑୧ ┊
