@@ -10,7 +10,7 @@
 <p align="center">
 ┊ ➤  PRNS • ┊
 
-꣑୧ He / They / She (Pref; they/them) ꣑୧
+➤ He / They / She (Pref; they/them) •
 
   <p align="center">
 ➤ C + H is Allowed always !! •
