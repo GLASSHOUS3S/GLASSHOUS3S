@@ -5,61 +5,61 @@
 
  
 <p align="center">
-┊ ꣑୧  Francis/Max , Deimos ꣑୧ ┊
+┊ ➤  Francis/Max , Deimos • ┊
 
-┊ ꣑୧ MINOR ꣑୧ ┊
+┊ ➤ MINOR • ┊
 
 <p align="center">
-┊ ꣑୧  PRNS ꣑୧ ┊
+┊ ➤  PRNS • ┊
 
 ꣑୧ He / They / She (Pref; they/them) ꣑୧
 
   <p align="center">
-꣑୧ C + H is Allowed always !! ꣑୧
+➤ C + H is Allowed always !! •
 
 <p align="center">
-┊ ꣑୧ INTERESTS ! ꣑୧ ┊
+┊ ➤ INTERESTS ! • ┊
 
 <p align="center">
- ꣑୧ Movies / Shows / Series / Stories ꣑୧
+ ➤ Movies / Shows / Series / Stories •
 
-꣑୧ Brokeback mountain , Interstellar , Whiplash , Top gun , The Outsiders , Supernatural , Arcane , 9-1-1 , StormChasers , Madness Combat , Transformers , Pokepasta  ꣑୧
+➤ Brokeback mountain , Interstellar , Whiplash , Top gun , The Outsiders , Supernatural , Arcane , 9-1-1 , StormChasers , Madness Combat , Transformers , Pokepasta  •
 
 <p align="center">
- ꣑୧ Games ꣑୧
+ ➤ Games •
 
- ꣑୧  Phighting! , Forsaken , Regretevator , Mouthwashing , Team Fortress 2 , Mortal Kombat , Until Dawn, Cookie Run Kingdom , Pokemon  ꣑୧
+ ➤  Phighting! , Forsaken , Regretevator , Mouthwashing , Team Fortress 2 , Mortal Kombat , Until Dawn, Cookie Run Kingdom , Pokemon  •
 
  <p align="center">
- ꣑୧ Youtubers ꣑୧
+ ➤ Youtubers •
  
- ꣑୧ 3FS , Markiplier , Jacksepticeye , Kubz Scouts , Coryxkenshin , JuicyFruitSnacks ꣑୧
+ ➤ 3FS , Markiplier , Jacksepticeye , Kubz Scouts , Coryxkenshin , JuicyFruitSnacks •
 
   <p align="center">
- ꣑୧ Bands / Music Artists ꣑୧
+ ➤ Bands / Music Artists •
 
-  ꣑୧ Radiohead , Mitski , Big Theif , Imogen Heap , Adrianne Lenker ꣑୧
+  ➤ Radiohead , Mitski , Big Theif , Imogen Heap , Adrianne Lenker •
 
 
 <p align="center">
-┊ ꣑୧ BYI ! ꣑୧ ┊
+┊ ➤ BYI ! • ┊
 
- ꣑୧ I use bro and dude alot on everyone... lmk if that bothers you!! Dyslexic , OSDD ( Freq fronters ; Francis/Max (Host, They/Them) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes , Some of us are yappers, and the two main just so happen to be!   ꣑୧
+ ➤ I use bro and dude alot on everyone... lmk if that bothers you!! Dyslexic , OSDD ( Freq fronters ; Francis/Max (Host, They/Them) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes , Some of us are yappers, and the two main just so happen to be!   •
 
  <p align="center">
-┊ ꣑୧  INT ! ꣑୧ ┊
+┊ ➤  INT ! • ┊
 
- ꣑୧ Anything stated in our interests , or not in my dni , Boundary Respecter , Yappers!!  ꣑୧
+ ➤ Anything stated in our interests , or not in my dni , Boundary Respecter , Yappers!!  •
 
 <p align="center">
-┊ ꣑୧ ! DNI ! ꣑୧ ┊  
+┊ ➤ ! DNI ! • ┊  
 
 
- ꣑୧ Basic DNI , Proshippers , Jimmys (MW) , Jimmy x Curly , SA Jokes , Male genitalia skins , Wincest (Dean x Sam Winchester) , Sam x Lucifer , Extremely Sexual unless friend , MHA (Unless Friend) , Sinfulspire , More coming soon . ꣑୧ 
+ ➤ Basic DNI , Proshippers , Jimmys (MW) , Jimmy x Curly , SA Jokes , Male genitalia skins , Wincest (Dean x Sam Winchester) , Sam x Lucifer , Extremely Sexual unless friend , MHA (Unless Friend) , Sinfulspire , More coming soon . • 
 
 
  <p align="center">
- ꣑୧ Please Int unless (Dniu_) , we are desperatly wanting friends ! ꣑୧
+ ➤ Please Int unless (Dniu_) , we are desperatly wanting friends ! •
 
  
  <p align="center">
