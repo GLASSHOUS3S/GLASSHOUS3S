@@ -1,7 +1,5 @@
 <p align="center">
- <img width="1000" src= ![Image](https://github.com/user-attachments/assets/4f6f32f2-2675-40ba-aa23-5378f05225f5) 
-  
-  ![Image](https://github.com/user-attachments/assets/4f6f32f2-2675-40ba-aa23-5378f05225f5)
+<img width="1552" height="298" alt="Image" src="https://github.com/user-attachments/assets/90fa2213-2f4f-49d2-aa56-7d509bdc257e" />
 
  
 <p align="center">
