@@ -21,9 +21,9 @@
 ┊ ➤ INTERESTS ! • ┊
 
 <p align="center">
- ➤ Movies / Shows / Series / Stories •
+ ➤ Movies / Shows / Series / Stories / Musicals •
 
-➤ Brokeback mountain , Interstellar , Whiplash , Top gun , The Outsiders , Supernatural , Arcane , 9-1-1 , StormChasers , Madness Combat , Transformers , Pokepasta  •
+➤ Brokeback mountain , Interstellar , Whiplash , Top gun , The Outsiders , Supernatural , Arcane , 9-1-1 , StormChasers , Madness Combat , Transformers , Pokepasta  , Hamilton , Little Shop of Horrors •
 
 <p align="center">
  ➤ Games •
