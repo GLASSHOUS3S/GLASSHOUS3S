@@ -44,7 +44,7 @@
 <p align="center">
 ┊ ➤ BYI ! • ┊
 
- ➤ I use bro and dude alot on everyone... lmk if that bothers you!! Dyslexic , OSDD ( Freq fronters ; Francis/Max (Host, They/Them) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes , Some of us are yappers, and the two main just so happen to be! Friends ( only . ) are able to take inpso !  •
+ ➤ I use bro and dude alot on everyone... lmk if that bothers you!! Dyslexic , OSDD ( Freq fronters ; Francis/Max (Host, They/Them) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes , Some of us are yappers, and the two main just so happen to be! Friends ( only . ) are able to take inpso  , just lmk when you are !  •
 
  <p align="center">
 ┊ ➤  INT ! • ┊
