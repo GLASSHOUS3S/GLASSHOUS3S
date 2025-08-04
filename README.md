@@ -5,7 +5,7 @@
 <img width="347" height="350" alt="Image" src="https://github.com/user-attachments/assets/2aff2fc6-8777-4f00-a283-970bb1fdbfd6" />
  
 <p align="center">
-┊ ➤  Francis/Max , Deimos • ┊
+┊ ➤  Francis/Sam , Deimos • ┊
 
 ┊ ➤ MINOR • ┊
 
