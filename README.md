@@ -64,8 +64,7 @@
  <p align="center">
 
 
- <img width="1552" height="298" alt="Image" src="https://github.com/user-attachments/assets/338ced52-14c6-4bb3-8b44-b502e685d50a" />  
-  
+<img width="1557" height="429" alt="Image" src="https://github.com/user-attachments/assets/3c04fa83-e30e-41c3-901a-b8b4db90cf1c" />  
   <p align="center">
  
 
