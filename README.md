@@ -2,8 +2,7 @@
 <img width="1552" height="298" alt="Image" src="https://github.com/user-attachments/assets/90fa2213-2f4f-49d2-aa56-7d509bdc257e" />
 
 <p align="center">
-<img width="347" height="350" alt="Image" src="https://github.com/user-attachments/assets/2aff2fc6-8777-4f00-a283-970bb1fdbfd6" />
- 
+<img width="347" height="350" alt="Image" src="https://github.com/user-attachments/assets/23e99f8c-be29-4089-b046-240a2fc4b173" />
 <p align="center">
 ┊ ➤  Francis/Sam , Deimos • ┊
 
