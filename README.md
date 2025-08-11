@@ -22,7 +22,7 @@
 <p align="center">
  ➤ Movies / Shows / Series / Stories / Musicals •
 
-➤ Brokeback mountain , Interstellar , Whiplash , Top gun , The Outsiders , Supernatural , Arcane , 9-1-1 , StormChasers , Madness Combat , Transformers , Pokepasta  , Hamilton , Little Shop of Horrors •
+➤ Brokeback mountain , Interstellar , Whiplash , Top gun , The Outsiders , Jumanji ( all 3 movies ) , Supernatural , Arcane , 9-1-1 , StormChasers , Madness Combat , Transformers , Pokepasta  , Hamilton , Little Shop of Horrors •
 
 <p align="center">
  ➤ Games •
@@ -37,13 +37,13 @@
   <p align="center">
  ➤ Bands / Music Artists •
 
-  ➤ Radiohead , Mitski , Big Theif , Imogen Heap , Adrianne Lenker •
+  ➤ Radiohead , Mitski , Big Theif , Imogen Heap , Adrianne Lenker , Etc !! •
 
 
 <p align="center">
 ┊ ➤ BYI ! • ┊
 
- ➤ I use bro and dude alot on everyone... lmk if that bothers you!! Dyslexic , OSDD ( Freq fronters ; Francis/Max (Host, They/Them) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Frequent mood swings , Please use tonetags , Sometimes make kms jokes , Some of us are yappers, and the two main just so happen to be! Friends ( only . ) are able to take inpso  , just lmk when you are !  •
+ ➤ I use bro and dude alot on everyone . . . lmk if that bothers you ! ! Dyslexic , An Overthinker and sometimes very senstive ! please be aware . . . , Frequent moodswings Sometimes they occur out of nowhere so dont worry . . its not your fault! , OSDD ( Freq fronters ; Francis/Max (Host, They/Them) , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Please use tonetags , Sometimes make kms jokes , Some of us are yappers, and the two main just so happen to be! Friends ( only . ) are able to take inpso  , just lmk when you are !  •
 
  <p align="center">
 ┊ ➤  INT ! • ┊
