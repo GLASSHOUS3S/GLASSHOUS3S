@@ -27,7 +27,7 @@
 <p align="center">
  ➤ Games •
 
- ➤  Phighting! , Forsaken , Regretevator , Mouthwashing , Team Fortress 2 , Mortal Kombat , Until Dawn, Cookie Run Kingdom , Pokemon  •
+ ➤  Phighting! , Forsaken , Regretevator , Die of Death , Let Him go , Mouthwashing , Team Fortress 2 , Mortal Kombat , Until Dawn , Cookie Run Kingdom , Pokemon , etc... •
 
  <p align="center">
  ➤ Youtubers •
