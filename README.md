@@ -11,7 +11,7 @@
 <p align="center">
 ┊ ➤  PRNS • ┊
 
-➤ He / They / She (Pref; they/them) •
+➤ He / They / She (Pref; He/them) •
 
   <p align="center">
 ➤ C + H is Allowed always !! •
@@ -43,7 +43,7 @@
 <p align="center">
 ┊ ➤ BYI ! • ┊
 
- ➤ I use bro and dude alot on everyone . . . lmk if that bothers you ! ! , Dyslexic , An Overthinker and sometimes very senstive ! please be aware . . . , Frequent moodswings Sometimes they occur out of nowhere so dont worry . . its not your fault! , OSDD  , Deimos (Co-host, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Please use tonetags , Sometimes make kms jokes , I yap sometimes out of no where... , Friends ( only . ) are able to take inpso  , just lmk when you are !  •
+ ➤ I use bro and dude alot on everyone . . . lmk if that bothers you ! ! , Dyslexic , An Overthinker and sometimes very senstive ! please be aware . . . , Frequent moodswings Sometimes they occur out of nowhere so dont worry . . its not your fault! , OSDD  , Sanford (Emotional Protector, He/Him) , iffy at keeping convos / Not great at Int first or convo starting , Please use tonetags , Sometimes make kms jokes , I yap sometimes out of no where... , Friends ( only . ) are able to take inpso  , just lmk when you are !  •
 
  <p align="center">
 ┊ ➤  INT ! • ┊
