@@ -4,14 +4,14 @@
 <p align="center">
 <img width="347" height="350" alt="Image" src="https://github.com/user-attachments/assets/23e99f8c-be29-4089-b046-240a2fc4b173" />
 <p align="center">
-┊ ➤  Francis/Sam/Artful , Deimos • ┊
+┊ ➤  Francis/Sam/Artful , Sanford • ┊
 
 ┊ ➤ MINOR • ┊
 
 <p align="center">
 ┊ ➤  PRNS • ┊
 
-➤ He / They / She (Pref; He/them) •
+➤ He / They / She (Pref; He/they) •
 
   <p align="center">
 ➤ C + H is Allowed always !! •
