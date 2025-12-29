@@ -54,7 +54,7 @@
 ┊ ➤ ! DNI ! • ┊  
 
 
- ➤ Basic DNI , Proshippers( incest , pedophilia , or abusive relationships , etc) , Jimmys (MW) , Jimmy x Curly , SA Jokes , Male genitalia skins , Sam x Lucifer , Extremely Sexual unless friend , MHA (Unless Friend) , Sinfulspire ,  Spawnists , Tcoal , ContryHumans , more info coming soon . . • 
+ ➤ Basic DNI , Proshippers( incest , pedophilia , or abusive relationships , etc) , Jimmys (MW) , Jimmy x Curly , SA Jokes , Male genitalia skins , Sam x Lucifer , Extremely Sexual unless friend , MHA (Unless Friend) , Tcoal , ContryHumans , more info coming soon . . • 
 
 
  <p align="center">
