@@ -22,7 +22,7 @@
 <p align="center">
  ➤ Movies / Shows / Series / Stories / Musicals •
 
-➤ Brokeback mountain , Interstellar , Whiplash , Top gun , The Outsiders , Jumanji ( all 3 movies ) , Supernatural , Arcane , 9-1-1 , StormChasers , Madness Combat , Transformers , Pokepasta  , Hamilton , Little Shop of Horrors •
+➤ Brokeback mountain , Interstellar , Whiplash , Top gun , The Outsiders , Jumanji ( all 3 movies ) , Supernatural , Arcane , 9-1-1 , StormChasers , Madness Combat , Transformers , Pokepasta  , Hamilton , Little Shop of Horrors , •
 
 <p align="center">
  ➤ Games •
