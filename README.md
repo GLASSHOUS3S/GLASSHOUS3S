@@ -2,7 +2,7 @@
 <img width="1557" height="429" alt="Image" src="https://github.com/user-attachments/assets/bedb2efe-f8a0-496f-93e4-f2628922a228" />
 
 <p align="center">
-<img width="347" height="350" alt="Image" src="https://github.com/user-attachments/assets/23e99f8c-be29-4089-b046-240a2fc4b173" />
+<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/b1a749ca-acef-45b6-91aa-2702f97c8cc0" />
 <p align="center">
 ┊ ➤  Francis/Shane/Spamton , Deimos • ┊
 
