@@ -60,6 +60,8 @@
  <p align="center">
  ➤ Please Int unless (Dniu_) , we are desperatly wanting friends ! •
 
+  <p align="center">
+   <img width="25" height="30" alt="Image" src="https://github.com/user-attachments/assets/a02024a2-5fe0-45e8-8273-7e33fd5043ef" />
  
  <p align="center">
 
