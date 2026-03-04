@@ -4,9 +4,9 @@
 <p align="center">
 <img width="347" height="350" alt="Image" src="https://github.com/user-attachments/assets/23e99f8c-be29-4089-b046-240a2fc4b173" />
 <p align="center">
-┊ ➤  Francis/Sam/Artful , Sanford • ┊
+┊ ➤  Francis/Shane/Spamton , Deimos • ┊
 
-┊ ➤ MINOR • ┊
+┊ ➤ MINOR - 16 • ┊
 
 <p align="center">
 ┊ ➤  PRNS • ┊
@@ -27,7 +27,7 @@
 <p align="center">
  ➤ Games •
 
- ➤  Phighting! , Forsaken , Regretevator , Die of Death , Let Him go , Mouthwashing , Team Fortress 2 , Mortal Kombat , Until Dawn , Cookie Run Kingdom , Pokemon , etc... •
+ ➤  Phighting! , Forsaken , Regretevator , Die of Death , Let Him go , Mouthwashing , Team Fortress 2 , Mortal Kombat , Until Dawn , Cookie Run Kingdom , Pokemon , DELTARUNE , OFF , etc... •
 
  <p align="center">
  ➤ Youtubers •
