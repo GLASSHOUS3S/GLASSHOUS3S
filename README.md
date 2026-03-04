@@ -67,10 +67,7 @@
 
 
 <img width="1200" height="265" alt="image" src="https://github.com/user-attachments/assets/47d000f6-e6e4-4389-a9d8-e434b048da2a" />
-<img width="1200" height="265" alt="image" src="https://github.com/user-attachments/assets/47d000f6-e6e4-4389-a9d8-e434b048da2a" />
 
-  <p align="center">
- 
 
 <!--
 **GLASSHOUS3S/GLASSHOUS3S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
